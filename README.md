@@ -1,1 +1,1 @@
-# Here I will uploading the all types of Projects
+# Here I will upload the all types of Projects
